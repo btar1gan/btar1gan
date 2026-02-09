@@ -1,4 +1,4 @@
-# hi! I'm Bryan
+# hi! I'm b
 I’m looking to collaborate [shoot me an email](mailto:tarigan.garage@protonmail.com)
 
 
